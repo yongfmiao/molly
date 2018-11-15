@@ -1,2 +1,2 @@
 # molly
-my daughter got her golden puppy
+My daughter got her golden puppy. She named it Molly.
